@@ -14,3 +14,6 @@ Luna Lovegood sagt:
 > My mum always said things we lose have a way of coming back to us in the end. 
 > If not always in the ways we expect.
 
+Pic by Sarah Williams from Champaign, United States / CC BY-SA (https://creativecommons.org/licenses/by-sa/2.0):
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/8/81/Evanna_Lynch_acrylic_ink.jpg"/>
