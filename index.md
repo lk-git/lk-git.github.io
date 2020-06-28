@@ -8,3 +8,9 @@ Luna Lovegood (*13.02.1981) ist eine Hogwartsschülerin in Ginny Weasleys Jahrga
 * direct
 * honest 
   * does not hesitate in telling or asking you something
+
+Luna Lovegood sagt:
+
+> My mum always said things we lose have a way of coming back to us in the end. 
+> If not always in the ways we expect.
+
